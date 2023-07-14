@@ -3,7 +3,7 @@ This repository is my work in progress notes from the ICDP sessions. ICDP stands
 
 This session ran on a course of 8 weeks , each friday for 2 hours. At the time of writing this, I have completed 6 weeks. I will update this as I go along. 
 
-I would also like to note that the classes encouraged communication between each other and sharing experiences. Pictures were used for examples and the class was very interactive. We were assignment to act out things we learnt in form of role play and take home questions whose answers/opinions were shared in next class. I will not be able to share those experiences here. I will only be sharing the notes I took. Please note that the classes were in Nepali and my translation might not be the best but I will try my best to convey the meaning.
+I would also like to note that the classes encouraged communication between each other and sharing experiences. Pictures were used for examples and the class was very interactive. We were assigned to act out things we learnt in form of role play and take home questions whose answers/opinions were shared in next class. I will not be able to share those experiences here. I will only be sharing the notes I took. Please note that the classes were in Nepali and my translation might not be the best but I will try my best to convey the meaning.
 
 ## Day 1 
 We looked at the curriculum of the course. We also looked at what is called the ICDP home. It had a base, ground floor, first floor and roof. 
